@@ -1,7 +1,7 @@
 %%30%30: A Game
 ===============
 
-Mouse your way through the map without touching the deadly trees!
+Mouse your way through the map without touching the deadly penis!
 (Chrome, Opera, [etc.](#whats-this-about) only)
 
 **WARNING:** Do you have important, unsaved work open in other tabs?  
